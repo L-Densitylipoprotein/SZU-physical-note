@@ -5,9 +5,9 @@ From SZU 2022 <br>
 
 ---
 链接：
-<阿里云盘><br>
-https://www.aliyundrive.com/s/6NNAyZgzCHs <br>
-提取码：2c0j
+物理笔记本.pdf
+https://www.alipan.com/s/mjgzBosFQGc
+提取码: s64a
 ---
  ### 碎碎念：
 > 大一整个学期可能也就物理会这么认真地弄物理笔记了。<br>
